@@ -7,9 +7,9 @@
 
 - 📫 How to reach me **971670319@qq.com**
 
-- ⚡ Fun fact **fuuny guy**
+- ⚡ Fun fact **funny guy**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
